@@ -1,8 +1,8 @@
 ## Hey everyone, my name is Abbey Herter!
 
-⭐️ I am currently in my last semester at SDSU completing a BS in Computer Science and a minor in Art. 
+⭐️ I am an SDSU graduate with a BS in Computer Science and a minor in Art. 
 
-⭐️ I currently work as a Part-Time Sales Associate at Reformation.
+⭐️ I currently work as a Visual Merchandising Associate at Reformation.
 
 ⭐️ I am interested in UX/UI Design and hope to pursue a career in this field. 
 
